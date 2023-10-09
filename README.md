@@ -5,6 +5,8 @@
 
 Група: ІМ-13
 
+Зв'язок зі мною: Telegram: @nolove_valik
+
 ## Проекти до здачі
 
 ### Ecommerce project
