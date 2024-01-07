@@ -5,7 +5,7 @@
 
 Група: ІМ-13
 
-Зв'язок зі мною: Telegram: @nolove_valik
+Зв'язок зі мною: Telegram: @berejnoy_val
 
 ## Проекти до здачі
 
